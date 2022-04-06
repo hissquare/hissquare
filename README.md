@@ -1,0 +1,6 @@
+- 👋 @hissquare#4449
+- 👀 MoonSec and PSU V2 user.
+- 🌱 fuck you
+- 💞️ i have a crush
+- 📫 join my discord soulskids
+- discord.me/soulskids ig
